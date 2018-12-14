@@ -1,4 +1,4 @@
-September 21, 2018
+Sptember 21, 2018
 
 The beginnings of the RPG based on the struggle between a scion of the illuminati and the Nobody.
 
@@ -70,6 +70,7 @@ SAVING THROWS VS
 fear
 depression
 confusion
+domination
 shock
 doubt
 EFFECTS
