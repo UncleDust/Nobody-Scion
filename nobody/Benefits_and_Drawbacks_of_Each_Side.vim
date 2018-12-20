@@ -1,18 +1,22 @@
 The Benefits and Drawbacks of each side the Scion and the Nobody
 
-NOBODY
+NOBODY - instrumental in bringing about the next stage of human evolution and development. This is a gift and a service.
 + 
 unkillable
 invulnerable
 omnipotent
 trust is good
+
 -
 alone
 unbelieved
 working class
 unaware of situation
+As the nobody ascends he more intimately connects with the egregore hivemind meaning he loses his psychic privacy. 
 
-SCION
+
+
+SCION - the nobody is dealing with unknowns and is an existential threat to humanity. the nobody is a change for the worse and a threat.
 +
 wealthy
 gigantic social network
@@ -22,6 +26,7 @@ knowledge of the Nobody
 
 -
 trust is bad
+The scion degrades physically and mentally all at once w/o constant and ever more costly age inhibition treatments.
 
 BOTH
 The power (promotion/ascension)  and dangers (downfall/hubris)  of PSI et. al.
